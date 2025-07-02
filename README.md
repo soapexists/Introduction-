@@ -22,7 +22,7 @@ GENDER: Agender.
 
 PRONOUNS: Any/All.
 
-EXTRAS: Minor! Nice and kind person! Whatever attitude you give me, I return! I'm a semi-literate roleplayer! I can type paragraphs but I cannot really be very descriptive. Working on it, though! I'm into regis and I'm usually iTrapped or Gubby!
+EXTRAS: Minor! Nice and kind person! Whatever attitude you give me, I return! I'm a semi-literate roleplayer! I can type paragraphs but I cannot really be very descriptive. Working on it, though! I'm into regis and I'm usually iTrapped!
 
 ══════════════
 
